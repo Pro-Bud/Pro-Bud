@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pro-Bud
+- 👀 I’m interested in programming and giving people free lessons
+- 🌱 I’m currently learning web development
+- 💞️ I’m looking to collaborate on YouTube and Discord
+- 📫 How to reach me: Join my discord (UNFINISHED: discord.gg/zUNqWtsZ)
